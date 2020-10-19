@@ -11,6 +11,3 @@ Unicorns are the best
 
 unicorns or narwhals? 
 
-amir decided unicorns win
-
-almost done
